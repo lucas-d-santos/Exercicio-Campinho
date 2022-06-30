@@ -1,1 +1,1 @@
-Me chamo Lucas, minha comida preferida é churrasco.
+Curiosidade sobre mim : sou simpatico e engraçado.
